@@ -11,7 +11,6 @@
 
 - 📫 How to reach me **namramalik436@gmail.com**
 
-- ⚡ Fun fact **I am leaarning Cyber Security**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
